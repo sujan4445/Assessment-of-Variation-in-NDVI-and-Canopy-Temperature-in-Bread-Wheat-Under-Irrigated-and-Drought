@@ -1,0 +1,1 @@
+# Assessment-of-Variation-in-NDVI-and-Canopy-Temperature-in-Bread-Wheat-Under-Irrigated-and-Drought
